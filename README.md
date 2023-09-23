@@ -1,5 +1,4 @@
 # List
-![list](https://monosnap.com/file/pNhs4ZaWDUZaDL6pm6nJcnqo9tdUfW)
 https://monosnap.com/file/pNhs4ZaWDUZaDL6pm6nJcnqo9tdUfW
 # Get
 https://monosnap.com/file/yrf0qXAm3mPoGsYEa73yeKwD6UlJIa
